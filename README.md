@@ -1,1 +1,1 @@
-# yaganew.gibhub.io
+# yaganew.gibhub.ru
